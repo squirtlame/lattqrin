@@ -7,4 +7,4 @@
 
 ENTP 7W8 , c + h || fandoms: hsr, enstars, okegom, slow damage, DRAMAtical murder, identity v
 
-kinns: gojo satoru, aventurine, shin okazaki, towa
+kinns: gojo satoru, aventurine, shin okazaki, towa, yuu hyakuya
