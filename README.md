@@ -1,4 +1,4 @@
-## ВСЕМ ПИС
+## HELLO EVERYONE ITS ME NAGITO KOMAEDA
 
  <img src="https://media.giphy.com/media/xJlOdEYy0r7ZS/giphy.gif" width="600"/>
 </div> 
